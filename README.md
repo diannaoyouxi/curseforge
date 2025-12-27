@@ -1,7 +1,7 @@
 <h2>CurseForge官网入口，MC游戏模组MOD资源下载网站|网页|打不开</h2>
 <p>CurseForge 是全球最大的游戏 MOD 模组资源下载网站之一，专注于为热门游戏提供丰富的模组、插件和整合包资源。它支持多种流行游戏，如《Minecraft 我的世界》《魔兽世界（WoW）》《模拟人生4》《坎巴拉太空计划（Kerbal Space Program）》等。CurseForge 每月有超过8亿次的MOD下载量，拥有超过1100万的活跃用户，是一个不断壮大的游戏爱好者社区。该平台不仅为玩家提供了获取和分享游戏模组的渠道，还为开发者提供了一个展示创意作品的舞台。</p>
-<p><strong>一键访问：</strong><a href="https://www.tdboxs.cn/sites/2822.html" target="_blank"><strong>CurseForge最新网址</strong></a></p>
-<p><strong>一键访问：</strong><a href="https://wangpanziyuan.pages.dev/" target="_blank"><strong>电子书/4K电影/无损音乐资源下载资源包</strong></a></p>
+<p><strong>一键访问：</strong><a href="https://curseforge.sodanav.com/" target="_blank"><strong>CurseForge最新网址</strong></a></p>
+<p><strong>一键访问：</strong><a href="https://appxiazai.pages.dev/" target="_blank"><strong>游戏网站大全</strong></a></p>
 <p><strong>一键访问：</strong><a href="http://ip.harmonylink.net/share/e82025" target="_blank"><strong>海外代理网络·可看蓝光4K影视</strong></a></p>
 <h3><strong>功能特点</strong></h3>
 <p><strong>丰富的模组资源</strong> CurseForge 涵盖了多种热门游戏的模组和插件，资源种类丰富，从改变游戏界面、优化游戏性能到提供各种工具和功能，应有尽有。例如，《Minecraft》的模组数量位居社区之首，被部分玩家称为《Minecraft》模组界的半边天。</p>
